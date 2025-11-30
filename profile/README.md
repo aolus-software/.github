@@ -1,3 +1,3 @@
 # Aolus Software
 
-## Software Company
+## We make something
